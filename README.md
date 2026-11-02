@@ -4,7 +4,7 @@
 
 *Speech science · Arabic dialectology · Computational linguistics · Natural language processing · Artificial intelligence*
 
-[Google Scholar](https://scholar.google.com/citations?user=KC9RhYcAAAAJ) · [Research platform: Ẓ.ai](https://www.arabicling.com/) · [Publications](https://sites.google.com/site/muhalzaidi/publications) · [Email](mailto:malzaidi1@ksu.edu.sa)
+[Google Scholar](https://scholar.google.com/citations?user=KC9RhYcAAAAJ) · [Research platform: Ẓ.ai](https://www.arabicling.com/) · [Email](mailto:malzaidi1@ksu.edu.sa)
 
 ## About me
 
